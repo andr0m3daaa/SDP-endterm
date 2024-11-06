@@ -1,0 +1,1 @@
+I know I uploaded it late, and in Moodle too, I forgot when I was at work and doing the project myself.  15:30|06.11.2024 I uploaded everything to moodle and github, best regards student SE-2314,Azirhanov Yerbolat Serikovich
